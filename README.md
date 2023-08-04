@@ -1,0 +1,1 @@
+# project_AI-powerd-Realtime-communication-system-for-people-with-disabilites
